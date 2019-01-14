@@ -1,1 +1,6 @@
 # Eternal-Dawn
+
+Soul of the mind, key to life's ether. 
+Soul of the lost, withdrawn from its vessel. 
+Let strength be granted, so the world might be mended.
+So the world might be mended. 
